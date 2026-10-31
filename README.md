@@ -1,2 +1,2 @@
- ## Hi there Im Vishwa 👋
+ ## I want to be a tech wizard👋🧙
 
